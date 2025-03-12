@@ -1,5 +1,8 @@
 ## Hi there 👋
-
+I’m currently working on the selenium speciation.
+I'm learning advanced data analysis skills. 🥰
+I'm interested in anything about marketing! 🤪
+A person love sleeping and surfing on the internet. Let's connect! 🏄‍♀️
 <!--
 **HaileyYu2025/HaileyYu2025** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
